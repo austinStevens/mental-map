@@ -1,15 +1,15 @@
 ## General Notes on Execution of Frameworks
 
-* **Power in Vulnerability:**​ Be extra vulnerable whenever you can when paraphrasing with admission of what you did in the past and don’t be afraid to self-deprecate.
+* **Power in Vulnerability:** Be extra vulnerable whenever you can when paraphrasing with admission of what you did in the past and don’t be afraid to self-deprecate.
 
-* **Tone, Rhythm & Personality:​** The tone, cadence and personality in which you say it will matter more than the words you say. A tone of discovery, humility, patience and invitation is good.
+* **Tone, Rhythm & Personality:** The tone, cadence and personality in which you say it will matter more than the words you say. A tone of discovery, humility, patience and invitation is good.
 
- * **As a Leader, You Set the Tone:**​ Recognize your own power in setting the tone of your conversations. If you treat the conversation as difficult, heavy and painful, so will your partner. Ensure tone is that of invitation, positivity, fun and light.
+ * **As a Leader, You Set the Tone:** Recognize your own power in setting the tone of your conversations. If you treat the conversation as difficult, heavy and painful, so will your partner. Ensure tone is that of invitation, positivity, fun and light.
 
 * **Dealing with Letters, Texts and Emails:**​ Be extremely careful with letters texts and emails as it can be mis-interpreted in many ways you cannot imagine. Add more notes here.
 Don’t 
 
-* **See it Land & Let it Land:​** Take a moment to let your partner’s words land on you, and let your questions land on your partner. Add emotions to the whole process. Don’t go through the motions.
+* **See it Land & Let it Land:** Take a moment to let your partner’s words land on you, and let your questions land on your partner. Add emotions to the whole process. Don’t go through the motions.
 
 * **Hedging Against Your Paranoia**
 
