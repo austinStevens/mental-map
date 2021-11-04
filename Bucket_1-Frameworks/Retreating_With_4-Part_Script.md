@@ -4,6 +4,8 @@ To be used anytime you cannot break through resistance with the previous 2 frame
 
 * **What are the 4 Parts?**
 
+![4-Part Script](https://github.com/austinStevens/mental-map/blob/b2b3eb64968a0818e7e79db75623df76f50f673b/Bucket_1-Frameworks/4-Part%20Script.png)
+
 * **Understanding Why a Retreat is Necessary**
 
 * **What is the Purpose of the 4-Part Script?**
